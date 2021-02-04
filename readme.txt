@@ -1,1 +1,1 @@
-Tere, need on minu ülesanded
+Need on minu  pythoni ülesanded
